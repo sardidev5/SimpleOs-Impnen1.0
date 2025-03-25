@@ -1,3 +1,6 @@
+
+![8604813c-ae12-49e7-86eb-b01559171aa9](https://github.com/user-attachments/assets/341fc3e1-5110-41f9-b331-acf84d7a5034)
+
 # Dokumentasi SimpleOS 🌟
 
 ## Ikhtisar
